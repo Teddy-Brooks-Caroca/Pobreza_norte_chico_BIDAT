@@ -56,7 +56,7 @@ El objetivo es explorar cómo ha evolucionado la pobreza por ingresos comuna por
 ## 📬 Contacto
 
 **Autor:** Teddy Brooks Caroca  
-📧 [LinkedIn](https://www.linkedin.com/)  
+📧 [LinkedIn](https://www.linkedin.com/in/teddy-brooks-caroca/)  
 📌 *Cualquier aporte, corrección o feedback es bienvenido.*
 
 ---
